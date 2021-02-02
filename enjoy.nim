@@ -1,1 +1,1 @@
-so exciting to learn new ideology
+so exciting to learn new technology;
